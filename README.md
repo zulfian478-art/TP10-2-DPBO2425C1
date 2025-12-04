@@ -89,4 +89,6 @@ Program ini memuat:
 
 https://github.com/user-attachments/assets/0a409247-9b03-470e-aef0-159797e29985
 
+## MOHON MAAF BINDINGNYA RUSAK MENDADAK HUHUHUUU
+
 
